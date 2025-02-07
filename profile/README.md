@@ -2,4 +2,4 @@
 
 <img src="laplus_chibi.png" alt="Mascot Chibi" width="250" align="right" />
 
-[VK](https://vk.com/onthecrack) | ~~Discord~~ (заморожен до лучших времён) | ~~Revolt~~ (случайно «убит» Роскомпозором) | ~~Enigma~~ («убит» самими же китайцами) | [Steam](https://steamcommunity.com/groups/rg_smokingroom) | [VNDB](https://vndb.org/p9205) | [YouTube (личный канал)](https://www.youtube.com/@NekoMonika/streams)
+[VK](https://vk.com/onthecrack) | ~~Discord~~ (заморожен до лучших времён) | [Steam](https://steamcommunity.com/groups/rg_smokingroom) | [VNDB](https://vndb.org/p9205) | [YouTube (личный канал)](https://www.youtube.com/@HertaTheGreat/streams)
